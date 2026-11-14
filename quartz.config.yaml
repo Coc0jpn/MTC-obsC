@@ -7,7 +7,7 @@ configuration:
   analytics:
     provider: plausible
   locale: en-US
-  baseUrl: github.com/Coc0jpn/MTC-obsC.git
+  baseUrl: coc0jpn.github.io/MTC-obsC
   ignorePatterns:
     - private
     - templates
