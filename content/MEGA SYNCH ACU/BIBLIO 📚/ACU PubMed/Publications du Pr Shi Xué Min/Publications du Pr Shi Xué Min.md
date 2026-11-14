@@ -1,0 +1,5 @@
+- [[L'électroacupuncture induit des modifications aiguës du profil des microARN du cortex cérébral]]
+- [[L'acupuncture associée à des manipulations rotatives renforçantes et réductrices inhibe l'apoptose neuronale hippocampique chez les rats spontanément hypertendus.]]
+- [[Relation dose-effet et mécanismes physiologiques de différentes manipulations d'acupuncture sur l'ischémie de la circulation postérieure avec vertiges]]
+- [[Influence de l'acupuncture sur la fonction motrice neuronale chez les rats atteints de l'occlusion de l'artère moyenne]]
+- [[Acupuncture pour réduire la pression artérielle en prévention secondaire des AVC]]

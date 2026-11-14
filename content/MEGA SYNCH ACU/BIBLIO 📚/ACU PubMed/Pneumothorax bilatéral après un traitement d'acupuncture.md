@@ -1,0 +1,1 @@
+![[Bilateral pneumothorax after acupuncture treatment.pdf]]
