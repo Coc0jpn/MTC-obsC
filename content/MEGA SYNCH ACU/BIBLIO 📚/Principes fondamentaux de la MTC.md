@@ -1,0 +1,1 @@
+![[Les principes fondamentaux de la médecine chinoise (French -- Giovanni Maciocia; foreword by Su Xin Ming -- ELSEVIER-MASSON, 1970 -- Elsevier Masson -- isbn13 9780443074899 -- 4d88fad1acc9c0c70304502f01413ce8 -- An.pdf]]

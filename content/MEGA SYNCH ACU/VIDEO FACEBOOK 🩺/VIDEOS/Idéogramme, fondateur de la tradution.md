@@ -1,0 +1,1 @@
+![Idéogramme, fondateur de la tradution]

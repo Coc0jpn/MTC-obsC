@@ -1,0 +1,1 @@
+![[Auricular Therapy_ A Comprehensive Text Color Edition_ -- Frank, Bryan L, Soliman, Nader E -- Color ed, Bloomington, IN, 2006 -- Bloomington, IN _ -- isbn13 9781425968878 -- beba632299df6418372955b301ffb896 -- Anna’s Archive.pdf]]

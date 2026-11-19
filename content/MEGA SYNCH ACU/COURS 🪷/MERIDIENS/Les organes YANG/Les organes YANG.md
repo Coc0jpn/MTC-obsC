@@ -1,0 +1,6 @@
+- [[Intestin Grêle]]
+- [[Gros intestin]]
+- [[Triple rechauffeur]]
+- [[Vesicule biliaire]]
+- [[Vessie]]
+- [[Poumon]]
