@@ -1,0 +1,1 @@
+![Préparation stage Asie](https://youtu.be/Xe12x0VvLqY)

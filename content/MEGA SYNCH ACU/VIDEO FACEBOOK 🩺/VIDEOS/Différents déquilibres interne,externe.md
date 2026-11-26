@@ -1,0 +1,1 @@
+![Différents déquilibres interne,externe](https://youtu.be/y9WGzx8C60A)

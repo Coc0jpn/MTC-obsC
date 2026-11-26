@@ -1,0 +1,1 @@
+![Liquide, points cutanés](https://youtu.be/I4fD2G-LZYM)

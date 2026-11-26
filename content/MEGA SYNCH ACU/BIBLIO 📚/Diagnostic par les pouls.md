@@ -1,1 +1,0 @@
-![[Le Diagnostic par les pouls radiaux _ Le I Sio Jou Menn -- Soulié de Morant George_ -- First Thus, 1990-01-01 -- G_ Trédaniel, éd_ de la Maisnie -- isbn13 9782857071006 -- ea4e4f42d49fc71583164690c9644895 -- Anna’s Archive.pdf]]

@@ -1,0 +1,1 @@
+![Chips sous frigidaire](https://youtu.be/gBVKoyg-j6w)

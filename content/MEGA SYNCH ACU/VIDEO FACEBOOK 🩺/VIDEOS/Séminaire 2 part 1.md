@@ -1,0 +1,1 @@
+![Séminaire 2 part 1](https://youtu.be/66d374U8zYM)

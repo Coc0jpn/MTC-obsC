@@ -1,0 +1,1 @@
+![Dynamisme du métal part 2](https://youtu.be/b6O0rFEaH4U)

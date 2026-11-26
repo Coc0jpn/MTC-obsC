@@ -1,0 +1,1 @@
+![Temps du bilan énergétique](https://youtu.be/3C03Wd-vZsU)
