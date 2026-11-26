@@ -1,0 +1,1 @@
+![[PDF 📇/Bilan énergétique au travers des 12 méridiens principaux-3.pdf|Bilan énergétique au travers des 12 méridiens principaux-3]]
